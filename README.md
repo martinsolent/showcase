@@ -9,7 +9,7 @@ Students are also able to tailor the course to their own personal career ambitio
 
 Students are supported to gain a range of transferable skills throughout the course. These include project management, critical thinking, organisation and presentation skills. The professional issues and practise module helps prepare students for the workplace by looking at the wider computing industry and the contexts in which digital skills can be used most effectively
 
-[Find out more about the student experience]()
+[Find out more about the student experience](https://martinsolent.github.io/Student-Experience/)
 
 ***
 
