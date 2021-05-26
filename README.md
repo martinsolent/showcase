@@ -56,6 +56,8 @@ MSc Digital Design student Agata Jurgelevic worked as an intern at Hinge Agency 
 
 ### MSc Digital Design student Natasha Deacon decided to join in the challenge with only an hour to spare – and won!
 
+![](images/DdhjgRQU_400x400_copy.png)
+
 ![natasha-pawtastic](images/natasha-pawtastic-2.png)
 
 With the live episodes aimed at UI/UX designers, MSc Digital Design student [Natasha Deacon](https://www.linkedin.com/in/ndeacon/) decided to join in the challenge with only an hour to spare – and won! She will receive a year’s free subscription of Adobe Creative Cloud.
